@@ -1,0 +1,1 @@
+Es ist einfach nur ein dummes Programm mit dem man Programme startet. In einer Liste. KI generiert mit der Cockpit KI von M$ in der Cockpit for Microsoft 365 App unter Win11. Einfach nur ein Test, wie weit kann ich gehen? Naja, geht bestimmt besser ;)
